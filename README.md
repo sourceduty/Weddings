@@ -29,6 +29,8 @@ In summary, wedding design is an art and a journey, weaving dreams, emotions, an
 > Alex: *"I'm ok at wedding design and planning."*
 >
 > *"I have some unique wedding ideas and my own private wedding plans."*
+>
+> *"You cannot have my wedding plans."*
 
 #
 ### Related Links
