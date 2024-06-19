@@ -1,4 +1,4 @@
-![Scuba Diving Wedding](https://github.com/sourceduty/Weddings/assets/123030236/74f8dc93-ff64-4139-aaba-6c5dcd521399)
+![Ring Box Design](https://github.com/sourceduty/Weddings/assets/123030236/9dd920ef-700f-4823-8c0d-9bd5522b70c1)
 
 > Wedding design and planning in any language or country.
 
